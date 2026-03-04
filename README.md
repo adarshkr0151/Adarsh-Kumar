@@ -12,7 +12,6 @@
 👉 My name is Adarsh Kr
 
 💼 3+ Years of Professional SEO Experience 
-
 🌍 Working with clients in US, UK, Canada, Australia & India  
 📈 Specialist in On-Page, Off-Page & Technical SEO  
 🧠 Focused on AI Search Optimization & Structured Data  
