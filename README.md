@@ -9,7 +9,7 @@
 
 ## 🌟 About Me
 
-👉 My name is Adarsh Kr
+👉 My name is Adarsh Kumar
 
 💼 3+ Years of Professional SEO Experience 
 🌍 Working with clients in US, UK, Canada, Australia & India  
